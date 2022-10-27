@@ -1,1 +1,1 @@
-hello everyone, thise file contains the DB related code.
+hello everyone love raja miss u.
